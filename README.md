@@ -1,1 +1,0 @@
-# Strong-editor-team
